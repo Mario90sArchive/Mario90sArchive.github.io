@@ -13,6 +13,8 @@
 ![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/d4ec2d75-a61f-4846-a6db-0794df4c023b)
 ![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/a4c53ec9-35ef-40ce-a6eb-25297cb0dd32)
 ![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/8c228aae-551f-4b9a-8f3b-69a1a01bb69b)
+![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/cbde4123-741a-4e9f-a56b-af4f5991f0ce)
+![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/58cb186f-7f39-43b9-ac06-392740f82ff0)
 
 -----------------------------------------------------------------------------------------------------------------------------------------
 
