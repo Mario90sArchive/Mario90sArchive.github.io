@@ -7,7 +7,12 @@
 ![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/10700439-f6f6-42be-9d4e-f00fcf42e13a)
 ![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/d387c706-09f7-449d-b90a-6956f81d4d39)
 
------------------------------------------------------------------------------------------------------------------------------------------
+---------------------------------------------------------------------------------------------------------------------------------------
+
+# Super Mario 64: JANUARY 1995
+![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/03446f6a-69df-40fd-a78f-3ff204107e8a)
+
+---------------------------------------------------------------------------------------------------------------------------------------
 
 # Super Mario 64: MARCH 1995
 ![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/cbde4123-741a-4e9f-a56b-af4f5991f0ce)
@@ -16,5 +21,5 @@
 
 -----------------------------------------------------------------------------------------------------------------------------------------
 
-# Super Mario 64: FEBURARY 1995
+# Super Mario 64: FEBUARY 1995
 ![image](https://github.com/Mario90sArchive/Mario90sArchive.github.io/assets/124399423/b4d41721-6fd5-4a3a-adf4-4de006a4da54)
